@@ -4,7 +4,6 @@
  * Serves: 4
  * Prep Time: 30 minutes
  * Total Time: 30 minutes
- ---
 
 ###### Ingredients
 * 1 14 oz package extra-firm water-packed tofu, rinsed
