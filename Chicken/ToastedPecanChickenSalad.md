@@ -4,6 +4,7 @@
 - 1 Deli rotisserie chicken (~2 lbs)
 - 3/4 cup chopped celery
 - 3/4 cup pecan pieces, toasted
+- 3/4 cup halved red grapes
 - 3/4 cup mayonnaise
 - 2 tbsp milk
 - 1 tsp dried parsley flakes
